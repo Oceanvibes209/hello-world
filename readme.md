@@ -2,4 +2,10 @@
 
 Hello World, whats popping?
 
-Not much just joshing.
+Brand new whip just hopped in! 
+
+I got options.
+
+Just joshing. 
+
+Ima spend this holiday locked in.
